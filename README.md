@@ -1,2 +1,3 @@
 # sql-ass2-fathima-resmin-
-click to view:https://drive.google.com/open?id=1ILPogBarWUSV_6mS_6L--VmBp08EyChn&usp=drive_fs
+https://drive.google.com/drive/folders/1HulrH3QDkW97d8DiY1oSWVbwJj38klrE?usp=sharing
+
